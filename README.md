@@ -40,3 +40,7 @@ Our project transcends the boundaries of conventional culinary experiences. We'v
 Join us in ushering in the era where **innovation meets flavor**, and freshness isn't just a choice but a **guarantee**.
 
 ---
+## 🔗💡Tinker cad model of this project with advanced addition
+https://www.tinkercad.com/things/cFtfMuZl1Bp-gassensortest
+
+---
